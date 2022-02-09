@@ -2,4 +2,4 @@
 My first Github Repository
 
 
-I like :building computers: :Marvel: :and driving:
+I like :running: 🐶: 🚗: :anime: :driving: :Building computers: and chinese food:
